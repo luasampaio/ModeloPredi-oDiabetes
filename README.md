@@ -8,4 +8,10 @@ Uma vez que a coleta dos dados foi feita os métodos existentes para a tratativa
 
 
 
+## Contato:
+Se precisar de mais informações, entre em contato:
+
+Email: luciana.sampaio84@gmail.com
+
+LinkedIn: [Luciana Sampaio ](https://www.linkedin.com/in/luciana-sampaio/)
 
